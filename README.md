@@ -54,12 +54,12 @@ We may terminate or suspend your account and access to CodeWhiz at our sole disc
 
 ## 10. Governing Law
 
-These terms shall be governed and construed in accordance with the laws of [Your Country/State], without regard to its conflict of law provisions.
+These terms shall be governed and construed in accordance with the laws of India, without regard to its conflict of law provisions.
 
 ## 11. Contact Us
 
-If you have any questions about these Terms and Conditions, please contact us at [contact information].
+If you have any questions about these Terms and Conditions, please contact us at anmolgarg263@gmail.com or mayank29malhotra@gmail.com.
 
 ---
 
-**Effective Date**: [Insert Date]
+**Effective Date**: Jun 6 2024
